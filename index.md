@@ -4,6 +4,7 @@ These are my realizations I had on my 30s. I didn't believe in them on my 20s. T
 ## The Current List
 
 ### Confident in these
+- Things do not matter, your relationship with them do.
 - For kids, if it not play, it is irrelevant. Most of the cases, for adults too. Play.
 - Your psychology will limit you sooner then your intelligence. 
 - Most people think in first order dynamics/terms. Things that matter at least require the second order, too.
