@@ -9,4 +9,8 @@ Sometimes I discover new affordenced of ojects thepugh the actions of my toddler
 * Can be put over head
 * Is see-through
 
-  
+
+## Piano
+
+* The keys can be lifted.
+* the lid can be shut
